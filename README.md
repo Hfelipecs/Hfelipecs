@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Hfelipecs
+- 👀 I’m interested in: Systems and application development
+- 🌱 I’m currently learning: Systems and application development
+- 📫 How to reach me: yet not..
+- 😄 Pronouns: He/him
+- ⚡ Fun fact: I am timid
