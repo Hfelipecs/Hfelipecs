@@ -3,4 +3,4 @@
 - 🌱 I’m currently learning: Systems and apps development
 - 📫 How to reach me: yet not..
 - 😄 Pronouns: He/him
-- ⚡ Fun fact: I am timid
+- ⚡ Fun fact: I am shy
